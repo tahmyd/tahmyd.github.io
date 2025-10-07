@@ -1,1 +1,0 @@
-# arifszn.github.io
